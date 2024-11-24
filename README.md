@@ -1,6 +1,6 @@
 # Ana Luiza Gomes Nunes :sunglasses:
 
-Sou estudante de Sistemas de Informação, estou no 3º período. Tenho 21 anos, nos meus momentos livres gosto de assistir filmes, séries, ouvir música, ler, jogar vôlei, entre outros.
+Sou estudante de Sistemas de Informação, estou no 4º período. Tenho 22 anos, nos meus momentos livres gosto de assistir filmes, séries, ouvir música, ler, jogar vôlei, entre outros.
 
 Estou no início da minha carreira em T.I. e aqui você pode acompanhar como ela está indo:
 
